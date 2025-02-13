@@ -12,9 +12,7 @@
 
 📫 Feel free to reach me out if there's an interest to work with me:<br>
    clcoqueiro.ivan@gmail.com<br>
-   +55 11 999145898
-
-Reach me at my socials! 
+   or reach me at my socials! 
 
 **Languages and Tools:**
 
