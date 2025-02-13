@@ -8,7 +8,7 @@
 
 🚀 I worked as a Tech Support intern during the year of 2023, where I developed important skills for Frontline employees.
 
-🌐 I'm open to participate in Hackathons!
+🌐 I'm interested in participating in hackathons!
 
 Feel free to reach me out if there's an interest to work with me:<br>
     clcoqueiro.ivan@gmail.com<br>
