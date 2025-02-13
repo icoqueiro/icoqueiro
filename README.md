@@ -1,6 +1,6 @@
 # Ivan Coqueiro
 
-🧬 I’m currently learning about Artificial Intelligence (AI) for healthcare at Coursera. I'm also working on improving my Java and C/C++ skills.
+🧬 I’m currently learning about Artificial Intelligence (AI) for healthcare on Coursera. I'm also working on improving my Java and C/C++ skills.
 
 🎓 BSc in Biomedical Engineering and Science and Technology at Federal University of ABC, located in ABC Paulista in Brazil. 
 
