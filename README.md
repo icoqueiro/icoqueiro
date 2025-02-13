@@ -11,8 +11,8 @@
 🌐 I'm open to participate in Hackathons!
 
 📫 Feel free to reach me out if there's an interest to work with me:<br>
-   clcoqueiro.ivan@gmail.com<br>
-   or reach me at my socials! 
+    clcoqueiro.ivan@gmail.com<br>
+    or reach me at my socials! 
 
 **Languages and Tools:**
 
